@@ -9,11 +9,8 @@ Dont Forget Give 🌟 Project And Thank You All
 # How To Use
 Just Put Discord Tokens In File tokens.txt
 
-
-
-
-
-
+# Stealing
+Some People Tell Me You Stealing People Tokens You Have Token Logger Why I Should Steal Token People If I have Token Generater 😂
 
 
 
